@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shaheer567khan
 - 👀 I’m interested in < search engine optimizaton
 - 🌱 I’m currently learning <satndard study
-- 📫 How to reach me https://seobash.co/
+- 📫 How to reach me https://seobash.com/ <visit us
 
 
 
